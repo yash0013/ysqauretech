@@ -1,0 +1,2 @@
+# ysqauretech
+it comapy
